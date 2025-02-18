@@ -1,6 +1,16 @@
 <p align="center">
-  <img src="![ezgif-2c8cb3af169d29](https://github.com/user-attachments/assets/bb37e3b9-d3c8-44ca-b392-c6aded11befe)" />
+  <img src="https://files.catbox.moe/m37mgu.gif" alt="wa"/>
 </p>
-
-
-
+<div align="center">
+  <b>call me gabe</b>
+</div>
+<div align="center">
+ he/him prns
+</div>
+<div align="center">
+  i love <b>blue archive, touhou and ultrakill!</b>
+</div>
+</div>
+<div align="center">
+  i might miss some messages <b>feel free to whisper</b> 
+</div>
